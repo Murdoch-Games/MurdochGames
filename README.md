@@ -19,12 +19,10 @@ Contact Details:
 Emails:
 
 Pubgultimategod@outlook.com
-
-Ashleymurdoch98gmail.com
+Ashleymurdoch98@gmail.com
 
 Discord:
 ashley_og
 
 Youtube:
-
 MurdochGames
