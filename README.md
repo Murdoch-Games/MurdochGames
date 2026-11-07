@@ -17,11 +17,14 @@ Currently under no legal terms does Murdoch Games Provide Paid or Non Paid acces
 Contact Details:
 
 Emails:
+
 Pubgultimategod@outlook.com
+
 Ashleymurdoch98gmail.com
 
 Discord:
 ashley_og
 
 Youtube:
+
 MurdochGames
